@@ -11,5 +11,7 @@ Oii ! Sou o Gabriel Agrela
 
 - ⚡ Fun fact: Amante de Séries/Anime (++Séries)
 
+- 🎶 Without music, life would be a silent and colorless existence.🎶
+
 🌎--Uma esponja saindo absorvendo conhecimento--🌎
                                -Gabriel Agrela 
