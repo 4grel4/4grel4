@@ -7,7 +7,7 @@ Oii ! Sou o Gabriel Agrela
 
 - 🔥  Apaixonado por tecnologia e sempre em busca de novos aprendizados
 - Inglês(Avançado) ✅        // um bom entendedor
-- Porguês(Fluente) ✅
+- Português(Fluente) ✅
 
 - ⚡ Fun fact: Amante de Séries/Anime (++Séries)
 
