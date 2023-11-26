@@ -3,7 +3,7 @@ Oii ! Sou o Gabriel Agrela
 - 🔭 Hoje trabalho como assistente administrativo
 
 - 🧑‍🎓 Estudando ADS - UNG 2023 🧑‍🎓
-- 🤩 Estudando JS, , , , ,😉
+- 🤩 Estudando JS, MySQL,Python, Modelagem de Sistemas, ,😉
 
 - 🔥  Apaixonado por tecnologia e sempre em busca de novos aprendizados
 - Inglês(Avançado) ✅        // um bom entendedor
