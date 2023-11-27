@@ -1,6 +1,6 @@
 Oii ! Sou o Gabriel Agrela
 
-- 🔭 Hoje trabalho como assistente administrativo
+- 🔭 Hoje trabalho na área de administração de uma empresa, em busca de ingressar na área de TI -ADS
 
 - 🧑‍🎓 Estudando ADS - UNG 2023 🧑‍🎓
 - 🤩 Estudando JS, MySQL,Python, Modelagem de Sistemas, ,😉
