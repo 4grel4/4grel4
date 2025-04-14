@@ -2,7 +2,7 @@ Oii ! Sou o Gabriel Agrela
 
 - 🔭 Hoje trabalho na área de administração de uma empresa, em busca de ingressar na área de TI -ADS
 
-- 🧑‍🎓 Estudando ADS - UNG 2023 🧑‍🎓
+- 🧑‍🎓 Formado em ADS - UNG 2024 🧑‍🎓
 - 🤩 Estudando JS, MySQL,Python, Modelagem de Sistemas, ,😉
 
 - 🔥  Apaixonado por tecnologia e sempre em busca de novos aprendizados
